@@ -1,1 +1,12 @@
-# 202301_03cit4033
+# 03CIT4033 Information Management Technologies
+
+### Communication
+
+
+
+### Teaching Plan
+
+
+
+
+### Lecture
